@@ -1,0 +1,2 @@
+# ujicobapertama
+pertama masukin file
